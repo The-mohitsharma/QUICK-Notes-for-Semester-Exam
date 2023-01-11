@@ -1,0 +1,1 @@
+# QUICK-Notes-for-Semester-Exam
